@@ -9,7 +9,7 @@
 </p>
 
 <p align="center">
-$\textcolor{white}{she} ,, \textcolor{lightblue}{him}$
+$\textcolor{lightpurple}{she} ,, \textcolor{lightblue}{him}$
 </p>
 <div align="center">
   
