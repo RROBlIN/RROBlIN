@@ -1,20 +1,16 @@
 <p align="center">
-<img src="https://cdn.discordapp.com/attachments/1074169751552671825/1241966824380301382/tumblr_650687c956e00c06c5e8f06b64837868_ab52fe78_1280.png?ex=664c1f3d&is=664acdbd&hm=55ab1df1f7b3fffcf60b91671756194bf0f0b1274d89bf4470b8b6073e718246&"/>
+<img src="https://64.media.tumblr.com/0204f698ac981167ab5313a9c4aa0400/b2ab91db4804a48d-a7/s1280x1920/3cf63b8262bb009ffebc51b88fc2fbd9bbca51e6.pnj"/>
 </p>
 <p align="center">
-<img src="https://cdn.discordapp.com/attachments/1074169751552671825/1241966824648871987/tumblr_5e54a92e98aa840bd6bd8badb8a3a7c3_520d0ba8_1280.png?ex=664c1f3d&is=664acdbd&hm=a816b9d1843337e67ab86f5010f07f1492f6ac2668a41e5fbe1674922bf0c42e&"/>
+<img src="https://64.media.tumblr.com/d8a1b457e0ee7d6f41bdf3d92b418db3/b2ab91db4804a48d-69/s1280x1920/3d8efab39672b82b7cb61cafcfa2e67734836601.pnj"/>
 </p>
 <p align="center">
-<img src="https://cdn.discordapp.com/attachments/1074169751552671825/1241966824103608361/tumblr_f4e2e632a700d89da683927ff952a58e_2cdbf7cf_1280.png?ex=664c1f3d&is=664acdbd&hm=633c7f56daddf7d5d53a0edef6dcae2979353c3e962d135413b95833186e51a3&" />
+<img src="https://64.media.tumblr.com/9c2119cd717eaa54fe4fa2db26a7c318/b2ab91db4804a48d-21/s1280x1920/fc339bac68cd9294ee3d4d163d67aa179840bf31.pnj" width="1000" />
 </p>
 
 <p align="center">
 $\textcolor{lightpurple}{she} ,, \textcolor{lightblue}{him}$
 </p>
-<div align="center">
-  
-  [profile creds!!](https://www.tumblr.com/cannibettes)
-</div>
 
 <div align="center">
 
@@ -35,8 +31,8 @@ feel free to c+h !! it would get lonely sometimes
 </div>
 
 <p align="center">
-<img src="https://cdn.discordapp.com/attachments/1074169751552671825/1241966824648871987/tumblr_5e54a92e98aa840bd6bd8badb8a3a7c3_520d0ba8_1280.png?ex=664c1f3d&is=664acdbd&hm=a816b9d1843337e67ab86f5010f07f1492f6ac2668a41e5fbe1674922bf0c42e&"/>
+<img src="https://64.media.tumblr.com/d8a1b457e0ee7d6f41bdf3d92b418db3/b2ab91db4804a48d-69/s1280x1920/3d8efab39672b82b7cb61cafcfa2e67734836601.pnj"/>
 </p>
 <p align="center">
-<img src="https://cdn.discordapp.com/attachments/1074169751552671825/1241966824380301382/tumblr_650687c956e00c06c5e8f06b64837868_ab52fe78_1280.png?ex=664c1f3d&is=664acdbd&hm=55ab1df1f7b3fffcf60b91671756194bf0f0b1274d89bf4470b8b6073e718246&"/>
+<img src="https://64.media.tumblr.com/0204f698ac981167ab5313a9c4aa0400/b2ab91db4804a48d-a7/s1280x1920/3cf63b8262bb009ffebc51b88fc2fbd9bbca51e6.pnj"/>
 </p>
